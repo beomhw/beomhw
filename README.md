@@ -6,7 +6,6 @@
 
 ## :zzz:  More about me.. I...
 
--   🌐 **I'm studying English and Japanese.**
 - :heart: => :video_game:　:walking:　:art:　:beer:
 - :coffee: => :confounded:   :tropical_drink: => :satisfied:
 
